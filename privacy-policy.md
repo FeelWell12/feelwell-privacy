@@ -1,6 +1,6 @@
 # Privacy Policy – FeelWell App
 
-*Last Updated: March 20, 2024 at 12:00 PM Pacific Standard Time*
+*Last Updated: July 4th, 2025 at 12:00 PM Eastern Daylight Time*
 
 ## Legal Notice and Binding Agreement
 
